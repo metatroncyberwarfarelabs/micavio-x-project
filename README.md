@@ -1,2 +1,2 @@
-# micavio-x-project
+# micavio-project
 A collaborative virtual military simulation in prepar3d - Lockheed Martin
