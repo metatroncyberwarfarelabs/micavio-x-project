@@ -6,4 +6,4 @@
 
 Official Trailler Video in Youtube Channel
 
-https://youtu.be/X0g3qt2vaWo
+https://www.youtube.com/channel/UCnWtSgiU4n7wEJEO3EqkI-w
